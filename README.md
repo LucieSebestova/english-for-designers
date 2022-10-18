@@ -1,2 +1,1 @@
-# english-for-designers
-My class work
+# My class work
