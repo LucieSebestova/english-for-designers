@@ -12,6 +12,6 @@ This is my .....
 - Project presentation?
 
 # Extras
-- Alternative text
+ [Alternative text](01-alternative-text)
 - First Impression (presentation)
 - Takeaway
