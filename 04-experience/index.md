@@ -1,6 +1,6 @@
 # Experience
 
-[View CV/résumé PDF](CV_Šebestová.pdf)
+[View CV/résumé PDF](images/CV_Šebestová.pdf)
 
 - - -
 
