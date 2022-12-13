@@ -14,4 +14,4 @@ This is my .....
 # Extras
  [Alternative text](01-alternative-text)
 - First Impression (presentation)
-- Takeaway
+- [Takeaway](takeaways)
