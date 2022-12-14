@@ -1,6 +1,6 @@
 # Hi, I'm Lucie
 I'm graphic designer and illustrator. 
-I enjoy creating completely new identities to which I can add not only practicality, but also creativity.
+I enjoy creating completely new brand identities to which I can add not only practicality, but also creativity.
 
 # About me
 - my story
