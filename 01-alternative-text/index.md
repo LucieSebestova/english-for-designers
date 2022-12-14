@@ -2,4 +2,4 @@
 
 ![This is where.....](m-sebestova.png)
 
-**Alt text** "This is where....."
+**Alt text** "Capital serif letter M filled with white flowers in black space."
