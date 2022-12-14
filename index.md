@@ -13,8 +13,13 @@ This is my .....
 
 # Extras
 [Alternative text](01-alternative-text)
+
 First Impression
+
 Content first
+
 [Experience](04-experience)
+
 Voice & Tone
+
 [Takeaway](takeaways)
