@@ -13,8 +13,8 @@ This is my .....
 
 # Extras
  [Alternative text](01-alternative-text)
-- First Impression (presentation)
-- 
+- First Impression (presentation) 
+ 
  [Experience](04-experience)
  
  [Takeaway](takeaways)
