@@ -12,10 +12,9 @@ This is my .....
 - Project presentation?
 
 # Extras
- [Alternative text](01-alternative-text)
-- First Impression (presentation) 
- 
- [Experience](04-experience)
- 
- [Takeaway](takeaways)
-
+[Alternative text](01-alternative-text)
+First Impression
+Content first
+[Experience](04-experience)
+Voice & Tone
+[Takeaway](takeaways)
