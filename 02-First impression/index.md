@@ -6,3 +6,7 @@ My name is Lucie. I study graphic design at the University of Prague. During my 
 Besides, I like to create various illustrations from realistic crayon drawing to computer drawing. I like to combine my illustrations with used graphics.
 
 ![black and white photo, smiling, friendly face](1635094893843 (1).jpg)
+
+## Featured Projects
+
+### Zahradnictví Spomyšl
