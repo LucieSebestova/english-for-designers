@@ -54,7 +54,9 @@ MY FIRST TRY
 |:--:|
 | *logo Základy bydlení* |
 
+
 $~$
+
 
 As you can see, the logo for Bydleni Brusy is based on the logo ZB, with the element of a tree added here to suggest a forest.
 Green color again because of the nature.
@@ -83,7 +85,9 @@ SECOND VERSION OF LOGO
 |:--:|
 | *Logo 2_Dark background* |
 
+
 $~$
+
 
 After sending this version it was wrong again, because the whole office started deciding on the choice of logo. There were five people + the owner of the company, and to make matters worse, everyone had a different idea of how the logo should look. So, for example, if three people liked this logo, the rest were not happy with it and wanted something else.
 So, this version was too clumsy for them and they wanted to return to the style of lines again, as was the case with the logo ZB.
@@ -143,7 +147,9 @@ During the call, I also learned from one of them, that they would like a symbol 
 |:--:|
 | *Symbol on metal* |
 
+
 $~$
+
 
 I also created a long explication for this logo, similar to the logomanual, to really achieve understanding and ideas:
 
