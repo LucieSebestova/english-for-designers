@@ -9,7 +9,7 @@ Besides, I like to create various illustrations from realistic crayon drawing to
 
 - - -
 
-## Featured Projects
+## Featured Project
 
 ### Zahradnictví Spomyšl
 
