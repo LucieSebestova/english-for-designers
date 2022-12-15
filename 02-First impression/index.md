@@ -16,20 +16,39 @@ Zahradnictví Spomyšl is currently the largest online seller of plants in The C
  Such great success on the market makes it surprising how little attention they pay to visual identity. They didn't have a complete style, they used different colours and fonts. Also their websites were outdated and didn't make a very good impression.
 That's why I have chosen to rebrand this brand to improve and complete the identity to match the quality and level of this online horticulture. I also emphasize packaging, which would be more interesting and engaging.
 
-FOTO
+![LOGO EXAMPLE](spospos.jpg)
 
 #### Logo
 I wanted to simplify the logo more. The new logo is only typographical – Quicksand font, to enhance freshness and elegance. A combination of two leafs replaced the hook.
 
-FOTO
+![BEFORE and AFTER](LOGO_1)
 
 #### Colors and new pattern
 I kept the color combination of black and green. However, I opted for a different green to make it more vibrant.
 
-
  Since the beginning of the creation, I wanted to create something that would differ from other horticultures. For this reason I created a pattern made of leaves that accompanies the entire graphic.
  
- FOTO
+ ![old posters](HAHAA.jpg) ![new poster](billboard1.jpg)
+ 
+ ![new packaging](box1.jpg)
+ 
+ ![new packaging with tape](box2.jpg)
+ 
+ ![gift packaging](dárkové krabičky.jpg)
+ 
+ ![green tape with logo](páska.jpg)
+ 
+ ![black and white photo, smiling, friendly face](1635094893843 (1).jpg)
+ 
+ ![old gift voucher](75102_poukaz2.jpg) ![new gift voucher](DÁRKOVÝPOUKAZZ.jpg)
+ 
+ ![old facebook](fb.jpg) ![new facebook](facebook-mockup.jpg)
+ 
+ ![old website](web.jpg) ![new website](webka.jpg)
+ 
+ ![flower pot with pattern of leafs](kytka.jpg)
+ 
+ ![apron for workers](ZÁSTĚRA.jpg)
  
  
 This was only a school project, but I still decided to add it here because I gained a lot of new experience on this project. I also enjoyed this work very much and wanted to share it with you. And of course, if possible I would like to offer it to this horticulture. :)
