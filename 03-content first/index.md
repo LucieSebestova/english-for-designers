@@ -39,9 +39,20 @@ They also wanted the logo be similar, or somehow associated with the logo of Zá
 Based on these requirements, my first version of the logo was this.
 
 MY FIRST TRY
-FOTO
-FOTO
-FOTO
+
+![first try](brusylogo_1.jpg)
+
+logo_1
+
+![first try2](brusylogo_2.jpg)
+
+logo_2
+
+![logo ZB](zblogo_Kreslicí plátno 1.jpg)
+
+logo Základy bydlení
+
+
 
 As you can see, the logo for Bydleni Brusy is based on the logo ZB, with the element of a tree added here to suggest a forest.
 Green color again because of the nature.
@@ -60,7 +71,15 @@ So she asked me to make another logo that will be completely different from Zák
 
 SECOND VERSION OF LOGO
 
-FOTO
+![second try](bruusy_Kreslicí plátno 1-03.jpg)
+
+Logo 2
+
+![second try_dark background](bruusy_Kreslicí plátno 1-04.jpg)
+
+Logo 2_Dark background
+
+
 
 After sending this version it was wrong again, because the whole office started deciding on the choice of logo. There were five people + the owner of the company, and to make matters worse, everyone had a different idea of how the logo should look. So, for example, if three people liked this logo, the rest were not happy with it and wanted something else.
 So, this version was too clumsy for them and they wanted to return to the style of lines again, as was the case with the logo ZB.
@@ -69,12 +88,17 @@ So I got a request to make a house from the lines where there will be two letter
 Thus, my patience was running out, but I created another version in the hope that it would suit them.
 
 
+
+
 MY DESPERATE THIRD VERSION OF LOGO
 
-FOTO
+![third try](bb.jpg)
 
 unfortunately!! Even this version was not enough for them and they started to come up with other changes again.
 So after it I suggested that it cannot be done like this and that an online meeting is really needed (as I said at the beginning).
+
+
+
 
 
 FINAL DENOUEMENT
@@ -87,17 +111,36 @@ At the end of the call, they agreed that this call should have been made at the 
 
 Final version (FINALLY)
 
-FOTO
-FOTO
+![final version of logo](BB1_Kreslicí plátno 1.jpg)
+
+Final logo
+
+![final version of logo, dark background](BB1tm_Kreslicí plátno 1.jpg)
+
+Final logo on dark background
+
+
+WAY TO LOGO:
+![way to logo](Obrázek1.jpg)
+
+
 
 During the call, I also learned from one of them, that they would like a symbol that could work on its own. So in that housing area it could be found on a mailbox, or on a bench.
 
-FOTO
+![symbol on wood](Obrázek2.jpg)
+
+Symbol on wood
+
+![symbol on metal](Obrázek3.jpg)
+
+Symbol on metal
+
 
 I also created a long explication for this logo, similar to the logomanual, to really achieve understanding and ideas:
 "THIS IS THE BEST THING FOR YOU!"
 
-FOTO
+![an example of how the logo would look on paper](cesta k logu10.jpg)
+an example of how the logo would look on paper
 
 
 WHAT HAPPENED THEN?
