@@ -101,7 +101,9 @@ So after it I suggested that it cannot be done like this and that an online meet
 
 - - -
 
+
 FINAL DENOUEMENT
+
 The entire team from the office was at the online meeting.
 After about an hour, we got to the core of the problem - that first they must decide together on some common idea.
 Despite the fact that even during the call they managed to disagree three times. 😄
