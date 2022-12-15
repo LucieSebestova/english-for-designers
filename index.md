@@ -13,6 +13,6 @@ I am also a member of an amazing family who have supported me throughout my life
 
 [Experience](04-experience)
 
-Voice & Tone
+[Voice & Tone]
 
 [Takeaway](takeaways)
