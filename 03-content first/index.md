@@ -27,17 +27,17 @@ Základy bydlení is company creating modern family living. They are based in B
 
 Bydlení Brusy is a project that comes under the company Základy bydlení. It's project of new-builds 4 terraced apartment buildings and 24 single-family houses in Rosice.
 And for this project they asked me for a new logo. 
-
+- - -
 DATES
 July 2022–November 2022
-
+- - -
 FIRST BRIEF
 The client described in an e-mail that the apartment buildings would be in nature by the woods and fields where the sun shines.
 So they asked me for a simple logo that would have the elements of nature mentioned.
 They also wanted the logo be similar, or somehow associated with the logo of Základy Bydlení.
 
 Based on these requirements, my first version of the logo was this.
-
+- - -
 MY FIRST TRY
 
 ![first try](brusylogo_1.jpg)
@@ -69,6 +69,8 @@ In the next hour, I had a call with the owner of the company that offered me thi
 
 So she asked me to make another logo that will be completely different from Základy bydlení. Also they had decided on the name Bydléní Brusy and they would like to have at least one letter B in the logo, preferably two.
 
+- - -
+
 SECOND VERSION OF LOGO
 
 ![second try](bruusy_Kreslicí plátno 1-03.jpg)
@@ -87,7 +89,7 @@ So they contradicted each other every now and then.
 So I got a request to make a house from the lines where there will be two letters B, using the same colors as in Základy Bydlení.
 Thus, my patience was running out, but I created another version in the hope that it would suit them.
 
-
+- - -
 
 
 MY DESPERATE THIRD VERSION OF LOGO
@@ -97,9 +99,7 @@ MY DESPERATE THIRD VERSION OF LOGO
 unfortunately!! Even this version was not enough for them and they started to come up with other changes again.
 So after it I suggested that it cannot be done like this and that an online meeting is really needed (as I said at the beginning).
 
-
-
-
+- - -
 
 FINAL DENOUEMENT
 The entire team from the office was at the online meeting.
@@ -119,6 +119,7 @@ Final logo
 
 Final logo on dark background
 
+- - -
 
 WAY TO LOGO:
 ![way to logo](Obrázek1.jpg)
@@ -142,6 +143,8 @@ I also created a long explication for this logo, similar to the logomanual, to r
 ![an example of how the logo would look on paper](cesta k logu10.jpg)
 an example of how the logo would look on paper
 
+
+- - -
 
 WHAT HAPPENED THEN?
 After sending it, I got no response for a week, and I was beginning to worry about what the problem was. But then on beautiful sunny afternoon, I got a call from a client, saying that everyone was happy, that she was sorry for the complications, and that she thanked me very much.
