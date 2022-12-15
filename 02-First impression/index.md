@@ -49,6 +49,7 @@ I kept the color combination of black and green. However, I opted for a differen
  green tape with logo
  
  ![old gift voucher](75102_poukaz2.jpg)
+ 
  old gift voucher
  
  ![new gift voucher](DÁRKOVÝPOUKAZZ.jpg)
