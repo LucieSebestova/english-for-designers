@@ -21,7 +21,7 @@ That's why I have chosen to rebrand this brand to improve and complete the ide
 - - -
 
 ![LOGO EXAMPLE](spospos.jpg)
-logo example
+*logo example*
 
 - - -
 
@@ -29,7 +29,7 @@ logo example
 I wanted to simplify the logo more. The new logo is only typographical – Quicksand font, to enhance freshness and elegance. A combination of two leafs replaced the hook.
 
 ![BEFORE and AFTER](LOGO.jpg)
-BEFORE and AFTER
+*BEFORE and AFTER*
 
 - - -
 
@@ -39,47 +39,47 @@ I kept the color combination of black and green. However, I opted for a differen
  Since the beginning of the creation, I wanted to create something that would differ from other horticultures. For this reason I created a pattern made of leaves that accompanies the entire graphic.
  
  ![old posters](HAHAA.jpg)
- old posters
+ *old posters*
  
  ![new posters](billboard1.jpg)
- new posters
+ *new posters*
  
  ![new packaging](box1.jpg)
- new packaging
+ *new packaging*
  
  ![new packaging with tape](box2.jpg)
- new packaging with tape
+ *new packaging with tape*
  
  ![gift packaging](dárkové krabičky.jpg)
- gift packaging
+ *gift packaging*
  
  ![green tape with logo](páska.jpg)
- green tape with logo
+ *green tape with logo*
  
  ![old gift voucher](75102_poukaz2.jpg)
  
- old gift voucher
+ *old gift voucher*
  
  ![new gift voucher](DÁRKOVÝPOUKAZZ.jpg)
- new gift voucher
+ *new gift voucher*
  
  ![old facebook](fb.jpg) 
- old facebook
+ *old facebook*
  
  ![new facebook](facebook-mockup.jpg)
- new facebook
+ *new facebook*
  
  ![old website](web.jpg) 
- old website
+ *old website*
  
  ![new website](webka.jpg)
- new website
+ *new website*
  
  ![flower pot with pattern of leafs](kytka.jpg)
- flower pot with pattern of leafs
+ *flower pot with pattern of leafs*
  
  ![apron for workers](ZÁSTĚRA.jpg)
- apron for workers
+ *apron for workers*
  
  - - -
  
