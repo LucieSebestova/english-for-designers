@@ -51,9 +51,7 @@ June - July 2015
 
 Here I packed printed matter into foil and then into boxes for primary schools. I also worked with hydraulic cutter. This printer was specialized in offset printing, where I also helped Mr. Kulhánek operate the machine.
 
-
-
-
+<br>
 
 ## EDUCATION
 
@@ -88,8 +86,6 @@ Bachelor‘s degree
 - Illustrations
 - Collaboration
  
-
-<br>
 <br>
 
 ## TOOLS
