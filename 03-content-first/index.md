@@ -13,10 +13,10 @@ Already as a child, I enjoyed drawing. That's why I started going to Art school 
 
 Besides, I like to spend time with my family and friends and maybe that's one of the reasons I do all my work at the last minute. 
 
-![my picture from childhood](20220210_172358.jpg)
-*...and here, at the age of 5, my artistic career began to appear! 😅*
-
-
+| ![my picture from childhood](20220210_172358.jpg) |
+|:--:|
+| *...and here, at the age of 5, my artistic career began to appear! 😅* |
+ 
 
 ## Case study
 
@@ -42,17 +42,17 @@ Based on these requirements, my first version of the logo was this.
 - - -
 MY FIRST TRY
 
-![first try](brusylogo_1.jpg)
+| ![first try](brusylogo_1.jpg) |
+|:--:|
+| *logo_1* |
 
-*logo_1*
+| ![first try2](brusylogo_2.jpg) |
+|:--:|
+| *logo_2* |
 
-![first try2](brusylogo_2.jpg)
-
-*logo_2*
-
-![logo ZB](zblogo_Kreslicí plátno 1.jpg)
-
-*logo Základy bydlení*
+| ![logo ZB](zblogo_Kreslicí plátno 1.jpg) |
+|:--:|
+| *logo Základy bydlení* |
 
 $~$
 
@@ -75,13 +75,13 @@ So she asked me to make another logo that will be completely different from Zák
 
 SECOND VERSION OF LOGO
 
-![second try](bruusy_Kreslicí plátno 1-04.jpg)
+| ![second try](bruusy_Kreslicí plátno 1-04.jpg) |
+|:--:|
+| *Logo 2* |
 
-*Logo 2*
-
-![second try_dark background](bruusy_Kreslicí plátno 1-03.jpg)
-
-*Logo 2_Dark background*
+| ![second try_dark background](bruusy_Kreslicí plátno 1-03.jpg) |
+|:--:|
+| *Logo 2_Dark background* |
 
 $~$
 
@@ -96,9 +96,9 @@ Thus, my patience was running out, but I created another version in the hope tha
 - - -
 
 
-MY DESPERATE THIRD VERSION OF LOGO
-
-![third try](bb.jpg)
+| MY DESPERATE THIRD VERSION OF LOGO |
+|:--:|
+| ![third try](bb.jpg) |
 
 Unfortunately…Even this version was not enough for them and they started to come up with other changes again.
 So after it I suggested that it cannot be done like this and that an online meeting is really needed (as I said at the beginning).
@@ -117,30 +117,31 @@ At the end of the call, they agreed that this call should have been made at the 
 
 Final version (FINALLY)
 
-![final version of logo](BB1_Kreslicí plátno 1.jpg)
+| ![final version of logo](BB1_Kreslicí plátno 1.jpg) |
+|:--:|
+| *Final logo* |
 
-*Final logo*
-
-![final version of logo, dark background](BB1tm_Kreslicí plátno 1.jpg)
-
-*Final logo on dark background*
+| ![final version of logo, dark background](BB1tm_Kreslicí plátno 1.jpg) |
+|:--:|
+| *Final logo on dark background* |
 
 - - -
 
-WAY TO LOGO:
-![way to logo](Obrázek1.jpg)
+| WAY TO LOGO: |
+|:--:|
+| ![way to logo](Obrázek1.jpg) |
 
 
 
 During the call, I also learned from one of them, that they would like a symbol that could work on its own. So in that housing area it could be found on a mailbox, or on a bench.
 
-![symbol on wood](Obrázek2.jpg)
+| ![symbol on wood](Obrázek2.jpg) |
+|:--:|
+| *Symbol on wood* |
 
-*Symbol on wood*
-
-![symbol on metal](Obrázek3.jpg)
-
-*Symbol on metal*
+| ![symbol on metal](Obrázek3.jpg) |
+|:--:|
+| *Symbol on metal* |
 
 $~$
 
@@ -148,8 +149,9 @@ I also created a long explication for this logo, similar to the logomanual, to r
 
 "THIS IS THE BEST THING FOR YOU!"
 
-![an example of how the logo would look on paper](cesta k logu10.jpg)
-*an example of how the logo would look on paper*
+| ![an example of how the logo would look on paper](cesta k logu10.jpg) |
+|:--:|
+| *an example of how the logo would look on paper* |
 
 
 - - -
