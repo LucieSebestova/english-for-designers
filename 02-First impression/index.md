@@ -38,8 +38,6 @@ I kept the color combination of black and green. However, I opted for a differen
  
  ![green tape with logo](páska.jpg)
  
- ![black and white photo, smiling, friendly face](1635094893843 (1).jpg)
- 
  ![old gift voucher](75102_poukaz2.jpg) ![new gift voucher](DÁRKOVÝPOUKAZZ.jpg)
  
  ![old facebook](fb.jpg) ![new facebook](facebook-mockup.jpg)
