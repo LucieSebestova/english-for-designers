@@ -24,8 +24,7 @@ lucie.sebestova@homtail.com
 
 I created a new visual identity. Then prepared promotional material and prints such as business cards, stamps and letterhead.
 
-
-
+$~$
 
 ### Desktop publishing for Rudoltický Zpravodaj
 2020 - 2021
