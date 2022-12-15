@@ -29,9 +29,11 @@ Bydlení Brusy is a project that comes under the company Základy bydlení. It's
 And for this project they asked me for a new logo. 
 - - -
 DATES
+
 July 2022–November 2022
 - - -
 FIRST BRIEF
+
 The client described in an e-mail that the apartment buildings would be in nature by the woods and fields where the sun shines.
 So they asked me for a simple logo that would have the elements of nature mentioned.
 They also wanted the logo be similar, or somehow associated with the logo of Základy Bydlení.
@@ -149,6 +151,7 @@ an example of how the logo would look on paper
 - - -
 
 WHAT HAPPENED THEN?
+
 After sending it, I got no response for a week, and I was beginning to worry about what the problem was. But then on beautiful sunny afternoon, I got a call from a client, saying that everyone was happy, that she was sorry for the complications, and that she thanked me very much.
 We arranged the remaining details and everything went smoothly. In the coming months I will be creating another works for them, such as letterhead, business cards, etc. 
 
