@@ -21,7 +21,7 @@ That's why I have chosen to rebrand this brand to improve and complete the ide
 #### Logo
 I wanted to simplify the logo more. The new logo is only typographical – Quicksand font, to enhance freshness and elegance. A combination of two leafs replaced the hook.
 
-![BEFORE and AFTER](LOGO_1)
+![BEFORE and AFTER](LOGO_1.jpg)
 
 #### Colors and new pattern
 I kept the color combination of black and green. However, I opted for a different green to make it more vibrant.
