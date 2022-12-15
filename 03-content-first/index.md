@@ -75,11 +75,11 @@ So she asked me to make another logo that will be completely different from Zák
 
 SECOND VERSION OF LOGO
 
-![second try](bruusy_Kreslicí plátno 1-03.jpg)
+![second try](bruusy_Kreslicí plátno 1-04.jpg)
 
 Logo 2
 
-![second try_dark background](bruusy_Kreslicí plátno 1-04.jpg)
+![second try_dark background](bruusy_Kreslicí plátno 1-03.jpg)
 
 Logo 2_Dark background
 
@@ -88,7 +88,9 @@ Logo 2_Dark background
 After sending this version it was wrong again, because the whole office started deciding on the choice of logo. There were five people + the owner of the company, and to make matters worse, everyone had a different idea of how the logo should look. So, for example, if three people liked this logo, the rest were not happy with it and wanted something else.
 So, this version was too clumsy for them and they wanted to return to the style of lines again, as was the case with the logo ZB.
 So they contradicted each other every now and then.
+
 So I got a request to make a house from the lines where there will be two letters B, using the same colors as in Základy Bydlení.
+
 Thus, my patience was running out, but I created another version in the hope that it would suit them.
 
 - - -
@@ -98,7 +100,7 @@ MY DESPERATE THIRD VERSION OF LOGO
 
 ![third try](bb.jpg)
 
-unfortunately!! Even this version was not enough for them and they started to come up with other changes again.
+Unfortunately…Even this version was not enough for them and they started to come up with other changes again.
 So after it I suggested that it cannot be done like this and that an online meeting is really needed (as I said at the beginning).
 
 - - -
@@ -142,6 +144,7 @@ Symbol on metal
 
 
 I also created a long explication for this logo, similar to the logomanual, to really achieve understanding and ideas:
+
 "THIS IS THE BEST THING FOR YOU!"
 
 ![an example of how the logo would look on paper](cesta k logu10.jpg)
