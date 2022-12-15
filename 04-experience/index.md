@@ -4,7 +4,7 @@
 
 - - -
 
-# This is my CV/résumé in Markdown.
+## This is my CV/résumé in Markdown.
 
 ## CONTACT
 
@@ -24,23 +24,29 @@ lucie.sebestova@homtail.com
 
 I created a new visual identity. Then prepared promotional material and prints such as business cards, stamps and letterhead.
 
+- -
 
 ### Desktop publishing for Rudoltický Zpravodaj
 2020 - 2021
 
 The rate of the entire magazine, which was published regularly every other month. Then press preparation.
 
+- -
 
 ### Assistant in the graphic department in the company Melitrade
 May 2016
 
 I created new packaging for tissues. Most of the time I sat behind the head graphic artist who showed me various tips about graphics.
 
+- -
 
 ### Assistant in the printer Kulhánek
 June - July 2015
 
 Here I packed printed matter into foil and then into boxes for primary schools. I also worked with hydraulic cutter. This printer was specialized in offset printing, where I also helped Mr. Kulhánek operate the machine.
+
+
+
 
 
 ## EDUCATION
@@ -50,11 +56,18 @@ Bachelor‘s degree
 
 2020 - PRESENT
 
+- -
+
 ### High school of graphic design and tourism, Pardubice
 2016 - 2020
 
+- -
+
 ### Elementary ART school Jindřicha Pravečka, Lanškroun
 2013 - 2015
+
+
+
 
 ## SKILLS
 
