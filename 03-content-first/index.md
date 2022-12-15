@@ -14,7 +14,7 @@ Already as a child, I enjoyed drawing. That's why I started going to Art school 
 Besides, I like to spend time with my family and friends and maybe that's one of the reasons I do all my work at the last minute. 
 
 ![my picture from childhood](20220210_172358.jpg)
-...and here, at the age of 5, my artistic career began to appear! 😅
+*...and here, at the age of 5, my artistic career began to appear! 😅*
 
 
 
@@ -44,15 +44,15 @@ MY FIRST TRY
 
 ![first try](brusylogo_1.jpg)
 
-logo_1
+*logo_1*
 
 ![first try2](brusylogo_2.jpg)
 
-logo_2
+*logo_2*
 
 ![logo ZB](zblogo_Kreslicí plátno 1.jpg)
 
-logo Základy bydlení
+*logo Základy bydlení*
 
 $~$
 
@@ -77,11 +77,11 @@ SECOND VERSION OF LOGO
 
 ![second try](bruusy_Kreslicí plátno 1-04.jpg)
 
-Logo 2
+*Logo 2*
 
 ![second try_dark background](bruusy_Kreslicí plátno 1-03.jpg)
 
-Logo 2_Dark background
+*Logo 2_Dark background*
 
 $~$
 
@@ -119,11 +119,11 @@ Final version (FINALLY)
 
 ![final version of logo](BB1_Kreslicí plátno 1.jpg)
 
-Final logo
+*Final logo*
 
 ![final version of logo, dark background](BB1tm_Kreslicí plátno 1.jpg)
 
-Final logo on dark background
+*Final logo on dark background*
 
 - - -
 
@@ -136,11 +136,11 @@ During the call, I also learned from one of them, that they would like a symbol 
 
 ![symbol on wood](Obrázek2.jpg)
 
-Symbol on wood
+*Symbol on wood*
 
 ![symbol on metal](Obrázek3.jpg)
 
-Symbol on metal
+*Symbol on metal*
 
 $~$
 
@@ -149,7 +149,7 @@ I also created a long explication for this logo, similar to the logomanual, to r
 "THIS IS THE BEST THING FOR YOU!"
 
 ![an example of how the logo would look on paper](cesta k logu10.jpg)
-an example of how the logo would look on paper
+*an example of how the logo would look on paper*
 
 
 - - -
