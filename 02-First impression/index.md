@@ -72,5 +72,5 @@ I kept the color combination of black and green. However, I opted for a differen
  ![apron for workers](ZÁSTĚRA.jpg)
  apron for workers
  
-This was only a school project, but I still decided to add it here because I gained a lot of new experience on this project. I also enjoyed this work very much and wanted to share it with you. And of course, if possible I would like to offer it to this horticulture. :)
+This was only a school project, but I still decided to add it here because I gained a lot of new experience on this project. I also enjoyed this work very much and wanted to share it with you. And of course, if possible I would like to offer it to this horticulture. 😊
 It takes me about a month to create this new visual identity. 
