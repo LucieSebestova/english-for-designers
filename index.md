@@ -7,7 +7,7 @@ I am also a member of an amazing family who have supported me throughout my life
 # My work
 [Alternative text](01-alternative-text)
 
-[First Impression](02-First-impression)
+[First impression](02-First-impression)
 
 [Content first](03-content first)
 
