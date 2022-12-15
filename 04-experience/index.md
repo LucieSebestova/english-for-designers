@@ -50,17 +50,17 @@ Bachelor‘s degree
 
 ## SKILLS
 
-Design thinking
-Branding
-Logo Design
-Illustrations
-Collaboration
+- Design thinking
+- Branding
+- Logo Design
+- Illustrations
+- Collaboration
 
 
 ## TOOLS
 
-Adobe InDesign
-Adobe Illustrator
-Adobe Photoshop
-Adobe Fresco
-Adobe XD
+- Adobe InDesign
+- Adobe Illustrator
+- Adobe Photoshop
+- Adobe Fresco
+- Adobe XD
