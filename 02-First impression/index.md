@@ -7,6 +7,8 @@ Besides, I like to create various illustrations from realistic crayon drawing to
 
 ![black and white photo, smiling, friendly face](1635094893843 (1).jpg)
 
+- - -
+
 ## Featured Projects
 
 ### Zahradnictví Spomyšl
@@ -16,8 +18,12 @@ Zahradnictví Spomyšl is currently the largest online seller of plants in The C
  Such great success on the market makes it surprising how little attention they pay to visual identity. They didn't have a complete style, they used different colours and fonts. Also their websites were outdated and didn't make a very good impression.
 That's why I have chosen to rebrand this brand to improve and complete the identity to match the quality and level of this online horticulture. I also emphasize packaging, which would be more interesting and engaging.
 
+- - -
+
 ![LOGO EXAMPLE](spospos.jpg)
 logo example
+
+- - -
 
 #### Logo
 I wanted to simplify the logo more. The new logo is only typographical – Quicksand font, to enhance freshness and elegance. A combination of two leafs replaced the hook.
@@ -25,7 +31,7 @@ I wanted to simplify the logo more. The new logo is only typographical – Quick
 ![BEFORE and AFTER](LOGO.jpg)
 BEFORE and AFTER
 
-
+- - -
 
 #### Colors and new pattern
 I kept the color combination of black and green. However, I opted for a different green to make it more vibrant.
@@ -75,7 +81,7 @@ I kept the color combination of black and green. However, I opted for a differen
  ![apron for workers](ZÁSTĚRA.jpg)
  apron for workers
  
- 
+ - - -
  
 This was only a school project, but I still decided to add it here because I gained a lot of new experience on this project. I also enjoyed this work very much and wanted to share it with you. And of course, if possible I would like to offer it to this horticulture. 😊
 It takes me about a month to create this new visual identity. 
