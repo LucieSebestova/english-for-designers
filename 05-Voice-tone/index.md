@@ -1,11 +1,11 @@
 # Voice & Tone
 
-This is the way I create my texts.
+This is the way I create my texts. 🫡
 
 ## Voice
 
 - I try writes text as if I was having a conversation with someone
-- I try to sound confident
+- I try to sound confident 🤗
 - Easy to read?
 
 ## Tone
