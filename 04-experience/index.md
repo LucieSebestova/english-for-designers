@@ -25,7 +25,7 @@ lucie.sebestova@homtail.com
 I created a new visual identity. Then prepared promotional material and prints such as business cards, stamps and letterhead.
 
 
-$~$
+<br>
 
 
 ### Desktop publishing for Rudoltický Zpravodaj
@@ -34,7 +34,7 @@ $~$
 The rate of the entire magazine, which was published regularly every other month. Then press preparation.
 
 
-$~$
+<br>
 
 
 ### Assistant in the graphic department in the company Melitrade
@@ -43,7 +43,7 @@ May 2016
 I created new packaging for tissues. Most of the time I sat behind the head graphic artist who showed me various tips about graphics.
 
 
-$~$
+<br>
 
 
 ### Assistant in the printer Kulhánek
@@ -63,21 +63,21 @@ Bachelor‘s degree
 2020 - PRESENT
 
 
-$~$
+<br>
 
 
 ### High school of graphic design and tourism, Pardubice
 2016 - 2020
 
 
-$~$
+<br>
 
 
 ### Elementary ART school Jindřicha Pravečka, Lanškroun
 2013 - 2015
 
 
-$~$
+<br>
 
 
 ## SKILLS
@@ -89,8 +89,8 @@ $~$
 - Collaboration
  
 
-$~$
-
+<br>
+<br>
 
 ## TOOLS
 
