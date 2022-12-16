@@ -15,4 +15,4 @@ I am also a member of an amazing family who have supported me throughout my life
 
 [Voice & Tone](05-Voice-tone)
 
-[Takeaway](takeaways)
+[Takeaways](takeaways)
