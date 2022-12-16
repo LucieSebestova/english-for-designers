@@ -4,7 +4,7 @@
 
 - - -
 
-## This is my CV/résumé in Markdown.
+## CV/résumé
 
 ## CONTACT
 
