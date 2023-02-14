@@ -2,10 +2,10 @@
 
 🎉 Five things I learned this semester in 2022 🎉
 
-- Use Hamingway
-- What is GitHub and how to use it
+- Use of Hamingway
+- What GitHub is and how to use it
 - How important it is to describe the story and not just show the final look 
 - How to do a CV
-- Be more confident when presenting 🙂
+- To be more confident when presenting 🙂
 
 Thank you! 🤗
