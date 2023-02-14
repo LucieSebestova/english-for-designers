@@ -1,5 +1,5 @@
 # Hi, I'm Lucie
-I’m a graphic designer and illustrator. I enjoy creating new brand identities that are practical, creative, and beautiful. Also, I come from an amazing and supportive family that has shaped who I am and where I am today. Thank you. ❤️
+Graphic designer and illustrator. I enjoy creating new brand identities that are practical, creative, and beautiful. Also, I come from an amazing and supportive family that has shaped who I am and where I am today. Thank you. ❤️
 
 
 # My work
