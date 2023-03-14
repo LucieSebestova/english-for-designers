@@ -3,7 +3,7 @@
 
 Here is my MIND MAP
 
-![mind map](20230228_114637.jpg)
+![mind map](mindmap.jpg)
 
 - Read [the article](…) <!-- index.md -->
 
