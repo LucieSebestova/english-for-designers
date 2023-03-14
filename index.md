@@ -3,6 +3,7 @@ Graphic designer and illustrator. I enjoy creating new brand identities that are
 
 
 # My work
+## WINTER 2022
 [Alternative text](01-alternative-text)
 
 [First impression](02-First-impression)
@@ -14,3 +15,6 @@ Graphic designer and illustrator. I enjoy creating new brand identities that are
 [Voice & Tone](05-Voice-tone)
 
 [Takeaways](takeaways)
+
+## SUMMER 2023
+[Storytelling](06-storytelling)
