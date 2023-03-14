@@ -9,7 +9,7 @@ Here is my MIND MAP
 
 
 
-- Read [the article](…) <!-- index.md -->
+- Read [the article](index.md) 
 
 <!-- Treat this as the case study to your article/talk/presentation. Document, discuss, and show your process (mind maps, chunking, draft and revised content, links to resources, etc.) -->
 <!-- Preparing a conference talk: https://adactio.com/journal/14363 -->
