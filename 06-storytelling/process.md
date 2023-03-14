@@ -9,8 +9,12 @@ I put it in my mind map and then it come to my mind, that MAYBE I would like to 
 ![mind map](20230228_114637.jpg)
 
 I started to develop my topics in Word to make clear what way I'm going to choose and it was really messy.
-I writed all my thoughts in points.
+I writed all my thoughts in points and also add accompanying pictures to my thoughts.
 
+![screenshot of word1-childhood, procrastination](w1.jpg)
+![screenshot of word2-socialmedia, diving](w2.jpg)
+![screenshot of word3- quotes about time](w3.jpg)
+![screenshot of word4-diving](w4.jpg)
 
 
 And this idea came to my mind, when I remembered about diving, where you have just short time to explore all the beautiful things under the water, and it’s like our life.
