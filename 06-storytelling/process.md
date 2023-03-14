@@ -2,10 +2,13 @@
 ## Process
 
 Hi!
-
-Here is my MIND MAP
+So at first...I tried „OPEN MODE“ and at first time I fell asleep 😆, but on the second try I was thinking about our life, about procrastination, addiction to social media and life in general atc.
+I put it in my mind map and then it come to my mind, that MAYBE I would like to to talk about THE TIME WE HAVE, as we have limited time.
 
 ![mind map](20230228_114637.jpg)
+
+And this idea came to my mind, when I remembered about diving, where you have just short time to explore all the beautiful things under the water, and it’s like our life.
+
 
 
 
