@@ -8,8 +8,12 @@ I put it in my mind map and then it come to my mind, that MAYBE I would like to 
 
 ![mind map](20230228_114637.jpg)
 
-And this idea came to my mind, when I remembered about diving, where you have just short time to explore all the beautiful things under the water, and it’s like our life.
+I started to develop my topics in Word to make clear what way I'm going to choose and it was really messy.
+I writed all my thoughts in points.
 
+
+
+And this idea came to my mind, when I remembered about diving, where you have just short time to explore all the beautiful things under the water, and it’s like our life.
 
 
 
