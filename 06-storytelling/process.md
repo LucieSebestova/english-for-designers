@@ -2,7 +2,8 @@
 ## Process
 
 Hi!
--So at first...I tried „OPEN MODE“ and at first time I fell asleep 😆, but on the second try I was thinking about our life, about procrastination, addiction to social media and life in general atc.
+
+So at first...I tried „OPEN MODE“ and at first time I fell asleep 😆, but on the second try I was thinking about our life, about procrastination, addiction to social media and life in general atc.
 I put it in my mind map and then it come to my mind, that MAYBE I would like to to talk about THE TIME WE HAVE, as we have limited time.
 
 ![mind map](20230228_114637.jpg)
