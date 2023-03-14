@@ -1,9 +1,13 @@
 # THE TIME WE HAVE
 ## Process
 
+Hi!
+
 Here is my MIND MAP
 
 ![mind map](mindmap.jpg)
+
+
 
 - Read [the article](…) <!-- index.md -->
 
