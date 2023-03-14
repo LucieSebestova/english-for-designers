@@ -5,7 +5,7 @@ Hi!
 
 Here is my MIND MAP
 
-![mind map](mindmap.jpg)
+![mind map](20230228_114637.jpg)
 
 
 
