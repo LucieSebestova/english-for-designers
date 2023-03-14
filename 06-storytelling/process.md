@@ -19,7 +19,7 @@ I writed all my thoughts in points and also add accompanying pictures to my thou
 
 ![screenshot of word4_diving](W4.jpg)
 
-After this I started to think about...........
+After this I started to think about how similiar is the diving and life. So I wanted to let my presentation
 And this idea came to my mind, when I remembered about diving, where you have just short time to explore all the beautiful things under the water, and it’s like our life.
 
 
