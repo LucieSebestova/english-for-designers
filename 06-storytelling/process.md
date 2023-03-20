@@ -20,12 +20,11 @@ I writed all my thoughts in points and also add accompanying pictures to my thou
 ![screenshot of word4_diving](W4.jpg)
 
 After this I started to think about how similiar is the diving and life. So I wanted to let my presentation
-And this idea came to my mind, when I remembered about diving, where you have just short time to explore all the beautiful things under the water, and it’s like our life.
+And this idea came to my mind, when I remembered about diving, where you have just short time to explore all the beautiful things under the water, and it’s exactly like our life.
 
+### Presentation
+
+So I started working on my presentation and preparing my speech.
 
 
 - Read [the article](index.md) 
-
-<!-- Treat this as the case study to your article/talk/presentation. Document, discuss, and show your process (mind maps, chunking, draft and revised content, links to resources, etc.) -->
-<!-- Preparing a conference talk: https://adactio.com/journal/14363 -->
-<!-- A refresher about case studies: https://thegymnasium.com/courses/take5/taking-your-portfolio-case-studies-to-the-next-level
