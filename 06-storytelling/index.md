@@ -13,7 +13,7 @@ Dig deep into your life and enjoy it in mouthfuls!
 Are you ready for the DIVE?
 LET'S DO IT!
 
-- Here is my [the process](process.md) .
+- If you're wondering how I got to this final version, here is my [the process](process.md) 
 
 <!-- Content goes here… -->
 <!-- A stand-alone version your talk/presentation, written as an article with images, links, etc. -->
