@@ -26,5 +26,6 @@ And this idea came to my mind, when I remembered about diving, where you have ju
 
 So I started working on my presentation and preparing my speech.
 
+![screenshot of presentation Id, and speech in Word](S5.jpg)
 
 - Read [the article](index.md) 
