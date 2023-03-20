@@ -33,4 +33,4 @@ Although I usually skip half of it in the end and say the rest quickly. 😄
 
 
 If you're wondering how it turned out and what the final work looks like, click on this link 🤓:
-- Read [the article](index.md) 
+[the article](index.md) 
