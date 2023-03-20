@@ -8,6 +8,8 @@ Nevertheless, I would like to remind you in this form here that life is not infi
 
 
 Dig deep into your life and enjoy it in mouthfuls!
+
+
 Are you ready for the DIVE?
 LET'S DO IT!
 
