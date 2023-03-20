@@ -28,4 +28,9 @@ So I started working on my presentation and preparing my speech.
 
 ![screenshot of presentation Id, and speech in Word](S5.jpg)
 
+To be honest, I'm always nervous to talk in front of multiple people. For this reason, I always prepare exactly what I'm going to say.
+Although I usually skip half of it in the end and say the rest quickly. 😄
+
+
+If you're wondering how it turned out and what the final work looks like, click on this link 🤓:
 - Read [the article](index.md) 
