@@ -86,9 +86,11 @@ Don't be so much on social media. Don't waste your time watching for hours some 
 ![Dory and Nemo](clownfish-ctenochaetus-tominiensis-blue-malawi-cichlids-swimming-near-coral-duncan.jpg)
 
 Like this for example…All those colorful fish, beautiful coral reefs, and the sun's rays, which appear alternately below the surface. All these things can be considered the beautiful moments in our lives.
+
 It’s like If the guy we liked and we were eyeing him all the time and he finally ask us out on a first date.
 Or if we have a nice evening with our family, or if we can finally add a picture to the github and find it wasn't that complicated. 
 It could be anything. Everyone has something that puts a smile on their face. Even the silly little thing of just smiling at someone strange can make the person's whole day better.
+
 So let's cherish moments like this and enjoy them.
 
 - - -
