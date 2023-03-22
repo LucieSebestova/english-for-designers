@@ -111,15 +111,22 @@ I myself once encountered a shark in a dive and I'm not going to lie, I was a li
 
 About the unpleasant situations that can happen during a dive, my own experience came to my mind, which was far worse for me than encountering a shark. 
 During one dive, we were diving in Egypt, I think, with a larger group of people.
+
 At the beginning I should mention that when you dive you can see below and around you, not above yourself, that is quite difficult.
 That's why when you're diving in multiple people, it's important that you don't try to get ahead of someone from the top, because they most likely have no idea that you're above them. 
+
 And that's exactly what one diver did to me by mistake. The fact that I was quite surprised wasn't so bad, what was worse was that during the time he got in front of me, he tore off my diving goggles and my breathing regulator with his flipper. 
-I totally freaked out. But do you remember when at the beginning of the presentation I told you about my practical test of open water diver? 
+I totally freaked out. 
+But do you remember when at the beginning of the presentation I told you about my practical test of open water diver? 
 Part of the test was taking off the mask, or the ragulator, and they wanted that knowledge for us precisely because of situations like this that could just happen.
 So even though I didn't see, because of the water, the first thing I did was looking for my regulator.
+
 To find a regulator, we've been learning a pretty useful trick, and with this trick, you don't even have to see. 
-And it's done like this: You use your right hand, because a hose from your regulator is connected to the tank from right side, and you go from your leg up. 
+
+### And it's done like this:
+You use your right hand, because a hose from your regulator is connected to the tank from right side, and you go from your leg up. 
 And wherever the regulator is, its hose will appear on your shoulder, where it can be easily felt and reinserted. 
+
 Then I blew out the excess water, put on the glasses my dad handed me in the process, got rid of the excess water, and that was it. 
 By the way, for this reason, you have your buddy assigned to you every time you dive, with which you control each other. On this dive, of course, my buddy was dad, who noticed this situation in time and helped me in any way he could.
 
