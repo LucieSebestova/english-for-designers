@@ -21,6 +21,7 @@ LET'S DO IT!
 
 ## HELLO!
 So, at first… Hi! My name is Lucy, as you all probably know.
+
 …I study graphic design at the University of Prague. During my studies I work as an external graphic designer for a housing company. Besides, I like to create various illustrations from realistic crayon drawing to digital drawing. 
 In my free time, I like to read, spend time with my friends and explore new things.
 It was through travelling that I discovered the magic of diving. 
