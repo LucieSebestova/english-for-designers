@@ -52,7 +52,13 @@ And that’s what I want to talk about today.
 - - -
 
 But…let's start at the beginning. Imagine you're on a boat that's tossing from side to side, wobbling to the rhythm of the waves...You might be slightly nauseous and maybe little nervous about it and NOW it's time to get ready for the dive.
-In the neoprene with your heavy tank on your back and your fins, that make it hard for you to move…you hobble to the edge of the boat and jump. You were just born. When all the bubbles are brought to the surface, you can look around and get used to the environment where you are. And that's your first phase of your life. 
+In the neoprene with your heavy tank on your back and your fins, that make it hard for you to move…you hobble to the edge of the boat and jump. 
+
+You were just born. 
+
+When all the bubbles are brought to the surface, you can look around and get used to the environment where you are. 
+
+And that's your first phase of your life. 
 
 ![photo of diver](scuba-diving.png)
 
