@@ -129,3 +129,6 @@ Life is fleeting, enjoy it…Take advantage of the opportunities that come your 
 
 Shit happens and it will happen, but the important thing is don't screw yourself up!
 
+
+If you've read this far, congratulations! 🥳 (And thank you for your attention 🥹).
+Bye!
