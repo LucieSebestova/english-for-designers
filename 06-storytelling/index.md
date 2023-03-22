@@ -64,4 +64,35 @@ And YOU decide how you spend your time, that is limited.
 
 ![deep in the ocean](aquarium-night-time.jpg)
 
+So, let's move a little. For each dive, the diver has an average of 45 to 60 minutes per dive. It depends on the depth of the dive and the experience of the diver.
+The deeper you go, the faster you draw your oxygen from the tank and reduce your dive time. That's why you have to be deliberate about how you handle your time underwater. Another important factor is calm and balanced breathing and movements. If you chase for everything, you'll only breathe superficially…you're doing yourself a disservice. You're robbing yourself of the time you've been granted. 
+Again, it compares to our life. It's like if you chase recklessly after stupid things and don't realize what is important. Stop fretting about what anyone thinks of you. Or how many followers you have on Instagram. Just don't waste your time on silly things. 
+Don't be so much on social media. Don't waste your time watching for hours some stupid videos on TikTok etc.… Go out! Know the beauty of life. Even a short walk-in nature is better than staring at your phone or tv. Of course, you need to switch off from time to time, and that’s okay, but everything in moderation.
+
+…Likewise, you won't stand at the same place still for 40 minutes while you dive. You have to move and look around. So while dive you can met a lot of great and beautiful things.
+
+- - -
+
+![Dory and Nemo](clownfish-ctenochaetus-tominiensis-blue-malawi-cichlids-swimming-near-coral-duncan.jpg)
+
+Like this for example…All those colorful fish, beautiful coral reefs, and the sun's rays, which appear alternately below the surface. All these things can be considered the beautiful moments in our lives.
+It’s like If the guy we liked and we were eyeing him all the time and he finally ask us out on a first date.
+Or if we have a nice evening with our family, or if we can finally add a picture to the github and find it wasn't that complicated. 
+It could be anything. Everyone has something that puts a smile on their face. Even the silly little thing of just smiling at someone strange can make the person's whole day better.
+So let's cherish moments like this and enjoy them.
+
+- - 
+
+Just as we can meet colorful fish underwater, we can also meet this slightly bigger fish.
+And it can be compared to the bad things, that sometimes happened in our life. 
+But it is important to realize, that some accidents, that might happen to you, they maybe look terrifying, but the situation is not that bad, as you can see it.
+When you met a shark in the water while you’re diving, he usually doesn’t care about you. It's not TADAM TADAM TADAM like in movie jaws. The shark is not just a starving jaw that wants blood and eats all the divers that appear around it... Of course, it is a predator and it CAN BE dangerous, but most attacks on humans have been caused by mistaking humans for seals, especially surfers.
+
+And in life it’s like when you failed the exam… you think about it, like you’re all live is ruined, you are sad, but it is not that bad. You can have second chance; you will prepare more and you’ll make it.
+
+Sometimes things just aren't going our way, but we can't get out of it right away.
+Life brings much, good and bad... Sometimes we just run into some assholes who annoy us and want to do us harm, but we have to deal with them.
+In some these situations can help a good friend and a glass of wine; and it is enough for situations like this, where you can talk things through out. 
+
+I myself once encountered a shark in a dive and I'm not going to lie, I was a little apprehensive, but as I say, it just sailed past us, minding its own business.
 
