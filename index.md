@@ -18,4 +18,5 @@ Graphic designer and illustrator. I enjoy creating new brand identities that are
 
 ## SUMMER 2023
 [Storytelling](06-storytelling)
+
 [Abstract](07-Abstract)
