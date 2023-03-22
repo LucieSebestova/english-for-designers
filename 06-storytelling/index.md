@@ -112,6 +112,8 @@ I myself once encountered a shark in a dive and I'm not going to lie, I was a li
 
 - - -
 
+![surprised emoji](surprised.png)
+
 About the unpleasant situations that can happen during a dive, my own experience came to my mind, which was far worse for me than encountering a shark. 
 During one dive, we were diving in Egypt, I think, with a larger group of people.
 
