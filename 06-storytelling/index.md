@@ -35,7 +35,7 @@ They're all cool and you never get bored with them. I PROMISE.
 ### About the course (Open Water Diver)
 This course officially allows me to dive to a depth of 12 meters. This course included a written test and a practical underwater test where, for example, we had to remove our diving goggles, put them back on and get rid of the excess water left in them.
 
-## What will my story be about?
+## WHAT WILL BE MY STORY ABOUT?
 I will talk about THE TIME WE HAVE. The reason why I chose to talk about this topic is that nothing in our lives is constant. Everything is changing, nothing is everlasting, and neither are we here forever. None of us are…
 
 But…don't worry, I don't want to stress here and create some feelings of depression and fear of what's coming. 😜 My intention is to make you aware of a few things that I often forget, too. 
@@ -56,7 +56,7 @@ In the neoprene with your heavy tank on your back and your fins, that make it ha
 
 ![photo of diver](scuba-diving.png)
 
-## WHAIT…WHERE AM I?
+## WAIT…WHERE AM I?
 So, when you get used to environment, you make your own moves to look around and find what you can explore. And the whole ocean is SO huge, and it's only up to you, where you will dive and what you will see – and same thing is with your life.
 YOU decide what you gonna do.
 YOU look for what you like.
