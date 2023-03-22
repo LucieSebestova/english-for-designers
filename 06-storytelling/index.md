@@ -136,6 +136,8 @@ To find a regulator, we've been learning a pretty useful trick, and with this tr
 You use your right hand, because a hose from your regulator is connected to the tank from right side, and you go from your leg up. 
 And wherever the regulator is, its hose will appear on your shoulder, where it can be easily felt and reinserted. 
 
+
+
 Then I blew out the excess water, put on the glasses my dad handed me in the process, got rid of the excess water, and that was it. 
 By the way, for this reason, you have your buddy assigned to you every time you dive, with which you control each other. On this dive, of course, my buddy was dad, who noticed this situation in time and helped me in any way he could.
 
