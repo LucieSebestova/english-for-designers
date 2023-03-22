@@ -64,8 +64,11 @@ And that's your first phase of your life.
 
 ## WAIT…WHERE AM I?
 So, when you get used to environment, you make your own moves to look around and find what you can explore. And the whole ocean is SO huge, and it's only up to you, where you will dive and what you will see – and same thing is with your life.
+
 YOU decide what you gonna do.
+
 YOU look for what you like.
+
 And YOU decide how you spend your time, that is limited. 
 
 ![deep in the ocean](aquarium-night-time.jpg)
