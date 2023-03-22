@@ -133,6 +133,7 @@ So even though I didn't see, because of the water, the first thing I did was loo
 To find a regulator, we've been learning a pretty useful trick, and with this trick, you don't even have to see. 
 
 And it's done like this:
+
 You use your right hand, because a hose from your regulator is connected to the tank from right side, and you go from your leg up. 
 And wherever the regulator is, its hose will appear on your shoulder, where it can be easily felt and reinserted. 
 
