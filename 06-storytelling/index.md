@@ -75,6 +75,7 @@ And YOU decide how you spend your time, that is limited.
 
 So, let's move a little. For each dive, the diver has an average of 45 to 60 minutes per dive. It depends on the depth of the dive and the experience of the diver.
 The deeper you go, the faster you draw your oxygen from the tank and reduce your dive time. That's why you have to be deliberate about how you handle your time underwater. Another important factor is calm and balanced breathing and movements. If you chase for everything, you'll only breathe superficially…you're doing yourself a disservice. You're robbing yourself of the time you've been granted. 
+
 Again, it compares to our life. It's like if you chase recklessly after stupid things and don't realize what is important. Stop fretting about what anyone thinks of you. Or how many followers you have on Instagram. Just don't waste your time on silly things. 
 Don't be so much on social media. Don't waste your time watching for hours some stupid videos on TikTok etc.… Go out! Know the beauty of life. Even a short walk-in nature is better than staring at your phone or tv. Of course, you need to switch off from time to time, and that’s okay, but everything in moderation.
 
