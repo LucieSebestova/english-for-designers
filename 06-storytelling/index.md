@@ -117,8 +117,12 @@ I myself once encountered a shark in a dive and I'm not going to lie, I was a li
 About the unpleasant situations that can happen during a dive, my own experience came to my mind, which was far worse for me than encountering a shark. 
 During one dive, we were diving in Egypt, I think, with a larger group of people.
 
+- - -
+
 At the beginning I should mention that when you dive you can see below and around you, not above yourself, that is quite difficult.
 That's why when you're diving in multiple people, it's important that you don't try to get ahead of someone from the top, because they most likely have no idea that you're above them. 
+
+- - -
 
 And that's exactly what one diver did to me by mistake. The fact that I was quite surprised wasn't so bad, what was worse was that during the time he got in front of me, he tore off my diving goggles and my breathing regulator with his flipper. 
 I totally freaked out. 
