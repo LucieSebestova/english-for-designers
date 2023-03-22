@@ -38,7 +38,7 @@ This course officially allows me to dive to a depth of 12 meters. This course in
 ## What will my story be about?
 I will talk about THE TIME WE HAVE. The reason why I chose to talk about this topic is that nothing in our lives is constant. Everything is changing, nothing is everlasting, and neither are we here forever. None of us are…
 
-But…don't worry, I don't want to stress here and create some feelings of depression and fear of what's coming. My intention is to make you aware of a few things that I often forget, too. 
+But…don't worry, I don't want to stress here and create some feelings of depression and fear of what's coming. 😜 My intention is to make you aware of a few things that I often forget, too. 
 
 ## HAVE ANY OF YOU EVER DIVED? 
 This question may be a little confusing, but I will still ask... Have any of you ever dived?
