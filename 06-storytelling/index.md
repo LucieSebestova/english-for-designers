@@ -81,7 +81,7 @@ Or if we have a nice evening with our family, or if we can finally add a picture
 It could be anything. Everyone has something that puts a smile on their face. Even the silly little thing of just smiling at someone strange can make the person's whole day better.
 So let's cherish moments like this and enjoy them.
 
-- - 
+- - -
 
 Just as we can meet colorful fish underwater, we can also meet this slightly bigger fish.
 And it can be compared to the bad things, that sometimes happened in our life. 
@@ -95,4 +95,37 @@ Life brings much, good and bad... Sometimes we just run into some assholes who a
 In some these situations can help a good friend and a glass of wine; and it is enough for situations like this, where you can talk things through out. 
 
 I myself once encountered a shark in a dive and I'm not going to lie, I was a little apprehensive, but as I say, it just sailed past us, minding its own business.
+
+![bigger fish-shark](clownfish-ctenochaetus-tominiensis-blue-malawi-cichlids-swimming-near-coral-duncan.jpg)
+
+- - -
+
+About the unpleasant situations that can happen during a dive, my own experience came to my mind, which was far worse for me than encountering a shark. 
+During one dive, we were diving in Egypt, I think, with a larger group of people.
+At the beginning I should mention that when you dive you can see below and around you, not above yourself, that is quite difficult.
+That's why when you're diving in multiple people, it's important that you don't try to get ahead of someone from the top, because they most likely have no idea that you're above them. 
+And that's exactly what one diver did to me by mistake. The fact that I was quite surprised wasn't so bad, what was worse was that during the time he got in front of me, he tore off my diving goggles and my breathing regulator with his flipper. 
+I totally freaked out. But do you remember when at the beginning of the presentation I told you about my practical test of open water diver? 
+Part of the test was taking off the mask, or the ragulator, and they wanted that knowledge for us precisely because of situations like this that could just happen.
+So even though I didn't see, because of the water, the first thing I did was looking for my regulator.
+To find a regulator, we've been learning a pretty useful trick, and with this trick, you don't even have to see. 
+And it's done like this: You use your right hand, because a hose from your regulator is connected to the tank from right side, and you go from your leg up. 
+And wherever the regulator is, its hose will appear on your shoulder, where it can be easily felt and reinserted. 
+Then I blew out the excess water, put on the glasses my dad handed me in the process, got rid of the excess water, and that was it. 
+By the way, for this reason, you have your buddy assigned to you every time you dive, with which you control each other. On this dive, of course, my buddy was dad, who noticed this situation in time and helped me in any way he could.
+
+The diver, that did this to me, was kind of jerk, cause when we were after the dive on the boat, he just smiled and barely apologized to me, like nothing happened. 
+
+
+Even these things can happen. That's just the way it is. 
+
+- - -
+
+![man jumping with joy by lake](man-jumping-with-joy-by-lake.jpg)
+
+So, what now? 
+Life is fleeting, enjoy it…Take advantage of the opportunities that come your way.
+
+
+Shit happens and it will happen, but the important thing is don't screw yourself up!
 
