@@ -92,6 +92,8 @@ So let's cherish moments like this and enjoy them.
 
 - - -
 
+![bigger fish-shark](image.jpg)
+
 Just as we can meet colorful fish underwater, we can also meet this slightly bigger fish.
 And it can be compared to the bad things, that sometimes happened in our life. 
 But it is important to realize, that some accidents, that might happen to you, they maybe look terrifying, but the situation is not that bad, as you can see it.
@@ -104,8 +106,6 @@ Life brings much, good and bad... Sometimes we just run into some assholes who a
 In some these situations can help a good friend and a glass of wine; and it is enough for situations like this, where you can talk things through out. 
 
 I myself once encountered a shark in a dive and I'm not going to lie, I was a little apprehensive, but as I say, it just sailed past us, minding its own business.
-
-![bigger fish-shark](clownfish-ctenochaetus-tominiensis-blue-malawi-cichlids-swimming-near-coral-duncan.jpg)
 
 - - -
 
