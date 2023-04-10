@@ -41,3 +41,19 @@ The city has an incoherent identity, using an outdated logo. They also often rep
 | ![notebook of Lanškroun](blok.jpg) |
 |:--:|
 | *Notebook of Lanškroun* |
+
+| ![Stationery mockup](úřední_papíry.jpg) |
+|:--:|
+| *Stationery* |
+
+| ![Stationery mockup](desky.jpg) |
+|:--:|
+| *Stationery* |
+
+| ![Wine bag](taška na víno.jpg) |
+|:--:|
+| *Wine bag* |
+
+If you want if to see more, click here.
+
+![Presentation](Visual identityyy.pdf)!
