@@ -26,6 +26,7 @@ Lanškroun is a city of electronics, engineering, and the paper industry as well
 | *stamp* |
 
 ### Actual visual identity
+
 | ![actual logo of Lanškroun](lanskroun.png) |
 |:--:|
 | *Actual logo of Lanškroun* |
