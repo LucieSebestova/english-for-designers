@@ -56,6 +56,7 @@ Symbol contains of the crown and the letters LA. 😜
 |:--:|
 | *Wine bag* |
 
+
 If you want to see more, click here.
 
 [Presentation](Visual identityyy.pdf)
