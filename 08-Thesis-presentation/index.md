@@ -30,7 +30,7 @@ Lanškroun is a city of electronics, engineering, and the paper industry as well
 |:--:|
 | *Actual logo of Lanškroun* |
 
-The city has an incoherent identity, using an outdated logo. They also often replace the logo with a character. Another drawback of the logo is that it is a rectangular logo. The city also doesn't hold the same color, and they often work with the color of the coat of arms, instead of the logo.
+The city has an incoherent identity, using an outdated logo. They also often replace the logo with an emblem. Another drawback of the logo is that it is a rectangular logo. The city also doesn't hold the same color, and they often work with the colors from emlbem, instead of the logo.
 
 ## New visual identity
 
@@ -56,6 +56,8 @@ Symbol contains of the crown and the letters LA. 😜
 |:--:|
 | *Wine bag* |
 
-If you want if to see more, click here.
+If you want to see more, click here.
 
 [Presentation](Visual identityyy.pdf)
+
+And if you want to hear my speech and learn more, come to class.
