@@ -9,5 +9,5 @@
 
 Lanškroun is a city of electronics, engineering, and the paper industry as well as a city of secondary schools, vibrant culture and modern sports fields.
 
-#Landeskrone#
+## Landeskrone
 "land crown"
