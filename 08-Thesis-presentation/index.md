@@ -38,6 +38,8 @@ The city has an incoherent identity, using an outdated logo. They also often rep
 |:--:|
 | *Symbol of Lanškroun* |
 
+Symbol contains of the crown and the letters LA. 😜
+
 | ![notebook of Lanškroun](blok.jpg) |
 |:--:|
 | *Notebook of Lanškroun* |
@@ -56,4 +58,4 @@ The city has an incoherent identity, using an outdated logo. They also often rep
 
 If you want if to see more, click here.
 
-![Presentation](Visual identityyy.pdf)!
+[Presentation](Visual identityyy.pdf)
