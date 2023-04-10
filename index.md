@@ -20,3 +20,5 @@ Graphic designer and illustrator. I enjoy creating new brand identities that are
 [Storytelling](06-storytelling)
 
 [Abstract](07-Abstract)
+
+[Thesis presentation](08-Thesis-presentation)
