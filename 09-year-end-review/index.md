@@ -2,7 +2,7 @@
 
 1) What did you like most about this course?
 
-I liked the way, this cource was open. Really friendly attitude. 😊
+I liked the way, this course was open. Really friendly attitude. 😊
 
 2) What did you like least about this course?
 
