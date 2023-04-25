@@ -22,3 +22,5 @@ Graphic designer and illustrator. I enjoy creating new brand identities that are
 [Abstract](07-Abstract)
 
 [Thesis presentation](08-Thesis-presentation)
+
+[Year end review](09-year-end-review)
