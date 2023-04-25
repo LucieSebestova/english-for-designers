@@ -58,6 +58,6 @@ Symbol contains of the crown and the letters LA. 😜
 | *Wine bag* |
 
 
-If you want to see more, click NOT YET! 
+If you want to see more, click [here](Visual identity2.pdf)
 
 And if you want to hear my speech and learn more, come to class.
