@@ -6,7 +6,7 @@ I liked the way, this cource was open. Really friendly attitude. 😊
 
 2) What did you like least about this course?
 
-Mmm..probably the time, when we have to present our projects. But it's only because of my stress from presenting in front of people.
+Mmm...probably the time, when we have to present our projects. But it's only because of my stress from presenting in front of people.
 But I'm working on it! 💪😃
 
 3) What were the top (three) things you learned this year?
