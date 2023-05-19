@@ -161,3 +161,7 @@ Shit happens and it will happen, but the important thing is don't screw yourself
 If you've read this far, congratulations! 🥳 (And thank you for your attention 🥹).
 
 Bye!
+
+- - -
+
+Click [here](TIME WE HAVE_PRESENTATION.pdf) for PDF presentation.
