@@ -17,7 +17,7 @@ But I'm working on it! 💪😃
 
 ## 4) What was the most memorable activity/assignment?
 
-Probably storytelling.😊 I enjoyed preparing presentation of The time we have. So this si probably my most memorable activity, despite the fact that the presentation was not as I imagined. 🤪
+Probably storytelling. 😊 I enjoyed preparing presentation of The time we have. So this si probably my most memorable activity, despite the fact that the presentation was not as I imagined. 🤪
 
 ## 5) What’s something you accomplished this year that you are most proud of?
 
